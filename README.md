@@ -1,0 +1,1 @@
+# yapay_zekaile_basari_tahminlemee
